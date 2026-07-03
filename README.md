@@ -30,5 +30,5 @@ Atualmente, atuo como Estagiário de T.I. na USP, onde acumulo experiência prá
 
 ### 📫 Contato:
 *   📍 **Localização:** Piracicaba - SP.
-*   ✉️ **E-mail:** pasccampos@gmail.com[cite: 1]
+*   ✉️ **E-mail:** pasccampos@gmail.com.
 *   💼 [LinkedIn](www.linkedin.com/in/pedro-campos-6a7a1625b)
